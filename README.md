@@ -1,2 +1,3 @@
 - 👋 PT CMS MAJU SEJAHTRA
-CMS Maju Sejahtra adalah perusahaan produk rumah tangga yang menyediakan solusi inovatif dan produk berkualitas tinggi untuk kebutuhan sehari-hari. Kami memiliki lini produk lengkap dan program afiliasi serta jaringan distribusi yang luas. Visi kami adalah Menjadi Perusahaan Direct to Customer (D2C) Terbesar dan Terkemuka di Indonesia.
+- 🏢 Jl. Tengsaw, RT.04/RW.02, Tarikolot, Kec. Citeureup, Kabupaten Bogor, Jawa Barat 16810
+- 📞 (021) 87942727
